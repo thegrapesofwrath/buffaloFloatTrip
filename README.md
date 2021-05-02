@@ -13,6 +13,8 @@ River Class 1
 
 **Time**: 2.5hrs
 
+[**Directions from Conway**](https://www.google.com/maps/dir/Conway,+Arkansas/Steel+Creek+Campground,+Buffalo+River+Trail,+Jasper,+AR+72641/data=!4m8!4m7!1m2!1m1!1s0x87cd6242c4fa2299:0xc16d5c18a365a00d!1m2!1m1!1s0x87ce99fdd79a5207:0x2b82c5dd6b383882!3e0?sa=X&ved=2ahUKEwiTvpiTsqvwAhX6HjQIHX-5BnAQ-A96BAgGEA4)
+
 ## Location
 
 **Entry** Steel Creek
